@@ -1,4 +1,4 @@
-# This is how Cricket Started
+# This is how Cricket Started!
 Cricket was created during Saxon or Norman times by children living in the Weald, an area of dense woodlands and clearings in south-east England that lies across Kent and Sussex.[2] The first definite written reference is from the end of the 16th century.
 
 There have been several speculations about the game's origins, including some that it was created in France or Flanders. The earliest of these speculative references is from 1300 and concerns the future King Edward II playing at "creag and other games" in both Westminster and Newenden. It has been suggested that "creag" was an Old English word for cricket, but expert opinion is that it was an early spelling of "craic", meaning "fun and games in general".[3]
